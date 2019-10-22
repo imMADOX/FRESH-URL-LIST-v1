@@ -1,0 +1,2 @@
+# FRESH-URL-LIST-v1
+https://github.com/imMADOX/FRECH-PROXY-LIST-V1
